@@ -1,0 +1,2 @@
+# INTELIGENCIA-ARTICIAL-ll
+Actividad 1.
